@@ -19,9 +19,6 @@ organized extremely roughly from most recent to oldest
 # [clarity skin alkalde edit](https://a.pomf.cat/dmdtlw.osk)
 ![](https://i.imgur.com/LNSwRJe.jpg)
 
-# [a newer beginning ALKALDE DIFFICULTY!!!!](https://a.pomf.cat/mlvxmn.osk)
-![](https://i.imgur.com/IUvzCpC.jpg)
-
 # [but for real this time](https://a.pomf.cat/vjddbg.osk)
 ![](https://i.imgur.com/yc7QDOw.jpg)
 
@@ -31,6 +28,9 @@ organized extremely roughly from most recent to oldest
 
 # [wowdank](https://a.pomf.cat/jipoql.osk)
 ![](https://i.imgur.com/5TycPZG.jpg)
+
+# [a newer beginning ALKALDE DIFFICULTY!!!!](https://a.pomf.cat/mlvxmn.osk)
+![](https://i.imgur.com/IUvzCpC.jpg)
 
 # [a new beginning (stoof knockoff skin)](https://a.pomf.cat/qtpijf.osk)
 ![](https://i.imgur.com/W1NUowd.jpeg)
