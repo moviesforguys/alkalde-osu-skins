@@ -4,6 +4,13 @@ if you are looking for my other skins please dm me on osu / discord (alkalde#604
 
 organized extremely roughly from most recent to oldest
 
+# [morgan (alkalde edit)](https://a.pomf.cat/tjrlcc.osk)
+![](https://i.imgur.com/oOIFGOp.jpg)
+
+# [BlockySquared Thing](https://a.pomf.cat/ffhllp.osk)
+(note, this is completely unedited by myself)
+![](https://i.imgur.com/WJBi15W.jpg)
+
 # [walnut -anime elements](https://a.pomf.cat/pxaent.osk)
 ![](https://i.imgur.com/EnZTLUR.jpeg)
 
