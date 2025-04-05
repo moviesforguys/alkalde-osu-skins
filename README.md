@@ -4,6 +4,10 @@ if you are looking for my other skins please dm me on osu / discord (alkalde), l
 
 organized extremely roughly from most recent to oldest
 
+# dokalde
+lost, we will miss her
+![](https://i.imgur.com/rlqhlcs.jpeg)
+
 # [morgan (alkalde edit)](https://a.pomf.cat/tjrlcc.osk)
 lost
 ![](https://i.imgur.com/oOIFGOp.jpg)
