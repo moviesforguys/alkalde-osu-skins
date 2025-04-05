@@ -1,10 +1,11 @@
 # alkalde-osu-skins
 
-if you are looking for my other skins please dm me on osu / discord (alkalde#6040), lmk if file host dies too
+if you are looking for my other skins please dm me on osu / discord (alkalde), lmk if file host dies too (update 2025-04-05, file host died AND my hard drive is also dead... many skins are now lost im sorry.. will be updating eventually)
 
 organized extremely roughly from most recent to oldest
 
 # [morgan (alkalde edit)](https://a.pomf.cat/tjrlcc.osk)
+lost
 ![](https://i.imgur.com/oOIFGOp.jpg)
 
 # [BlockySquared Thing](https://a.pomf.cat/ffhllp.osk)
